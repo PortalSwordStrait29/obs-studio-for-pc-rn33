@@ -1,4 +1,4 @@
-# 
+# professional OBS Studio for PC | OBS Studio for Windows Script | bitrate-control + custom-overlays offers the most advanced OBS Studio for PC | OBS Studio for Windows script, with
 
 
 
